@@ -1,4 +1,4 @@
-
+vip Scripts for 3008 offers the most advanced 3008 Script, with auto-heal and infinite resources. Perfect for dominating any match.
 
 
 
